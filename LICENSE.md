@@ -1,4 +1,4 @@
-# 
+# Get the ultimate iMovie for macOS plugin with updated Plugin for iMovie for macOS - multi-cam-editing and EQ. Featuring multi-cam-editing and EQ, it's the best choice for macOS
 
 
 
